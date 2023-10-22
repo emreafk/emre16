@@ -1,2 +1,2 @@
-# deitymekan
-Biz çete değiliz biz aileyiz..
+# jzx*KATANA
+Bizim gibi olmak için sadece dua et
